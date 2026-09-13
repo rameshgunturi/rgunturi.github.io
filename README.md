@@ -1,2 +1,0 @@
-# rgunturi.github.io
-Hello !! 
